@@ -14,3 +14,8 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+born in 2003
+NSYSU
+department of PE
+went to Waseda University
+going to Institute of Economic
